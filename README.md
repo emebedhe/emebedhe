@@ -1,5 +1,3 @@
-Hello, I am emebedhe (ae/aer, he/him).
+... and as the world, the organism that it is, fades to black around us ...
 
-:)
-
-f--- trump
+do not judge your day upon what you have harvested but by the seeds you plant ... 
